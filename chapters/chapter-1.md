@@ -16,9 +16,9 @@ Inspite of graduating from an Ivy College, Autumn chose to move to her small tow
 
 Shrikantha's journey also a painful one. He loved a woman too, Shakti. But years have passed, since he has seen or heard from her. Shrikantha has no idea of her whereabouts. He reached out to her like a couple of years back few times, and all times, Shakti had  nothing but one answer - no. Shrikantha after those attempts decided to make peace with and never reached out to her. Soon after getting tired of working tirelessly in a MNC, he decided to quit and open Mangal LLC. He couldn't forget Shakti and every she soon became an indispensable part of every moment for Shrikantha. But his days of pain of over and his life is soon coming to end.
 
-Today, Shrikantha decided to make a field trip to one of the schools in the town and on the way. As usual he decided to take his love Cannondale bicycle. Mrs Brianna as usual was on way to her office, when suddenly a small dog came just in front of her car. She tried to pull the brake and turned the car, and suddenly Shrikantha came close and got hit. He fell a few meters away and immediately went unconscious. Being a responsible person, Brianna decided to take him to the hospital where he was being under the treatment.
+Today, Shrikantha decided to make a field trip to one of the schools in the town and on the way. As usual he decided to take his love Cannondale bicycle. Mrs Brianna as usual was on way to her office, when suddenly a small dog came just in front of her. She tried to pull the brake and turned the car, and suddenly Shrikantha came close and got hit. He fell a few meters away and immediately went unconscious. Being a responsible person, Brianna decided to take him to the hospital where he was declared dead.
 
-Brianna informed Autumn on her way to hospital. On learning the news, she rushed quickly to the hospital, just to meet the man on the verge of death.
+Brianna informed Autumn on her way to hospital. On learning the news, she rushed quickly to the hospital, just to collect the last person in her life lying dead.
 
  
 
